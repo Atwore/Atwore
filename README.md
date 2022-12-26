@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Atwore
 - 👀 I’m interested in 3D printing And coding
 - 🌱 I’m currently learning Webdevelopment tools
-- 💞️ I’m looking to collaborate on Noting
+- 💞️ I’m looking to collaborate on Nothing
 - 📫 How to reach me BaconBoy#0582, Ill maybe awnser
