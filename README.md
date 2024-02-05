@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Atwore
-- 👀 I’m interested in 3D printing And coding
-- 🌱 I’m currently learning Webdevelopment tools
-- 💞️ I’m looking to collaborate on Nothing
-- 📫 How to reach me BaconBoy#0582, Ill maybe awnser
+- Hello, Im @atwore, I wanna change my  name.
+- I like Web Developing, and Developing Discord bots.
+-  I’m currently learning Web development tools
+-  I’m looking to collaborate on Nothing
+- My discord is ziphe_
